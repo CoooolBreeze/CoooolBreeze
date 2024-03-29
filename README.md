@@ -34,7 +34,7 @@ I will deliver my best to you and in return I want your best delivered to me.
 <br><br>
 
 > [!NOTE]
-> I'd love to work with people who are passionate about helping others regain control over their health and happiness, and being able to use AI and tech will have a huge impact on achieving that.
+> I'd love to work with people who are passionate about helping others regain control over their health and happiness, and being able to use AI and tech will have a huge impact in achieving that.
 <br>
 
 If you've made it this far then thank you for sticking with me on my journey.
